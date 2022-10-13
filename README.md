@@ -1,0 +1,2 @@
+# latihanday1
+latihan
